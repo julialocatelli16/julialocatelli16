@@ -7,6 +7,8 @@ bem-vindo ao perfil da locatelli!
 
 -me segue no insta
 
+hobby-receber pix
+
 -quero pix💸 44997637056
 
 onde você pode entrar em contato cmg🔞
