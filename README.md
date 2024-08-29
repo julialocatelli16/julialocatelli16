@@ -11,6 +11,8 @@ hobby- dormir
 
 -quero pix💸 44997637056
 
+-estou no primeiro ano
+
 onde você pode entrar em contato cmg🔞
 Julia.locatelli17@escola.pr.gov.br
 
