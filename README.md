@@ -1,5 +1,5 @@
 bem-vindo ao perfil da locatelli!
-**Julia locatelli**🩷
+**Julia locatelli**
 
 -aluna da Cintia👩‍🏫
 
