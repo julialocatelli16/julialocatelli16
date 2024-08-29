@@ -13,6 +13,8 @@ hobby- dormir
 
 -estou no primeiro ano
 
+-eu gosto de tirar fotos
+
 onde você pode entrar em contato cmg🔞
 Julia.locatelli17@escola.pr.gov.br
 
